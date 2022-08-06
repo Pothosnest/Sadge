@@ -1,4 +1,1 @@
 # Sadge
-but funny.
-
-gotcha!
